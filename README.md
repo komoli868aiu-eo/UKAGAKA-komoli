@@ -4,3 +4,5 @@
 [ゴースト３分クッキング](https://soliton.sub.jp/satori/?%E3%82%B4%E3%83%BC%E3%82%B9%E3%83%88%EF%BC%93%E5%88%86%E3%82%AF%E3%83%83%E3%82%AD%E3%83%B3%E3%82%B0)
 
 https://himaoka.sakura.ne.jp/nanika_f3.htm
+
+https://ssp.shillest.net/ukadoc/manual/descript_ghost.html
