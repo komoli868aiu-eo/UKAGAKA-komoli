@@ -6,3 +6,11 @@
 https://himaoka.sakura.ne.jp/nanika_f3.htm
 
 https://ssp.shillest.net/ukadoc/manual/descript_ghost.html
+
+
+初めてしっかりとゴースト作る。その１
+
+今↑
+次回↓
+
+初めてしっかりとゴースト作る。その２
